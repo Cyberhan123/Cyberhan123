@@ -1,7 +1,1 @@
- <iframe  
- height=850 
- width=90% 
- src="https://github.com/Cyberhan123"  
- frameborder=0  
- allowfullscreen>
- </iframe>
+![avatar](https://github.com/Cyberhan123/Cyberhan123/blob/f7e491b66a1397a730afd33c38cff114e3f875cc/banner.jpg)
