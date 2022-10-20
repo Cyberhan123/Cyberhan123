@@ -1,3 +1,3 @@
 愿你山水富饶，人长寿。
 
-May your mountains and rivers prosper and people live long.
+May your landscapes be prosperous and people live long.
