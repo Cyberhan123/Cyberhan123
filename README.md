@@ -1,20 +1,7 @@
-这里没有任何东西
+愿你山水富饶，人长寿。
 
-呢度冇任何嘢
+May your mountains and rivers prosper and people live long.
 
-There's nothing 
-
-Siin pole midagi
-
-Burada heç bir şey yoxdur
-
-Здесь ничего нет
-
-Hier ist nichts
-
-여기 아무것도 없어 요
-
-ここには何もありません
 
 
 
